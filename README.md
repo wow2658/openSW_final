@@ -1,1 +1,16 @@
-# openSW_final
+![슬라이드1](https://github.com/wow2658/openSW_final/assets/34699039/7d5d037b-4983-46aa-8c00-3aa703870fa9)
+![슬라이드2](https://github.com/wow2658/openSW_final/assets/34699039/75db8bc8-701e-4f4b-801f-ac6af9e8c7b2)
+![슬라이드3](https://github.com/wow2658/openSW_final/assets/34699039/b911fdb2-a04e-44e8-b611-a0c219c68928)
+![슬라이드4](https://github.com/wow2658/openSW_final/assets/34699039/beecef77-3e14-45ff-8722-264d5815ae87)
+![슬라이드5](https://github.com/wow2658/openSW_final/assets/34699039/dd845727-4fe2-49da-8082-f88c1f461e0c)
+![슬라이드6](https://github.com/wow2658/openSW_final/assets/34699039/24686a92-cbbc-4952-b56e-63980a84e12c)
+![슬라이드7](https://github.com/wow2658/openSW_final/assets/34699039/c77941f1-3ce8-4103-980e-00575e8e135b)
+![슬라이드8](https://github.com/wow2658/openSW_final/assets/34699039/c81070d0-e055-47c0-82cb-e0f342051c2b)
+![슬라이드9](https://github.com/wow2658/openSW_final/assets/34699039/e4c1920f-9880-4ff2-8b0a-9af1ca05083a)
+![슬라이드10](https://github.com/wow2658/openSW_final/assets/34699039/eea10470-1f4b-477b-b763-14d13fdb8241)
+![슬라이드11](https://github.com/wow2658/openSW_final/assets/34699039/ce69e6ec-4e12-4cdc-9bd3-818923ae3044)
+![슬라이드12](https://github.com/wow2658/openSW_final/assets/34699039/70c21fbb-b06a-4e8c-a9cd-3b255fdebef0)
+![슬라이드13](https://github.com/wow2658/openSW_final/assets/34699039/aec83977-8409-4340-b0ad-5e1d6d61270d)
+![슬라이드14](https://github.com/wow2658/openSW_final/assets/34699039/78c4b230-eb43-409f-8bee-d0c843755ee2)
+
+
